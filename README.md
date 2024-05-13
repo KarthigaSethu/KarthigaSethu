@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **Machine Learning Models**
 
-- 📫 How to reach me **karthigaksk@gmail.com**
+- 📫 How to reach me **karthigaksk@gmail.com; www.linkedin.com/in/karthiga-sethu-sethuramalingam**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
